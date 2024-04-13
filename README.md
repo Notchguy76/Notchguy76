@@ -1,0 +1,3 @@
+- Hello! My name name is Notchguy76 or you can shorten it to just "Notchguy" for simplicity's sake.
+- I do several things such as; running my own Youtube channel called "Notchguy76" where I record and edit my own let's play videos for games such as Terraria or Pokemon, and the developing of a modern Technology modification for Minecraft Java Edition know as Geotech.
+- Should you want to conact me for any reason whether it be about Youtube or my Minecraft Mod development you can contact me via my email: "Carsonwerth06@gmail.com"
